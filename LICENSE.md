@@ -1,4 +1,4 @@
-# 
+# 新 Affinity Photo 滤镜 Mac OS版 | 独家 Affinity Photo 滤镜 PC Windows版。集成 版本历史 和 修复画笔，跨平台性能最大化。
 
 
 
